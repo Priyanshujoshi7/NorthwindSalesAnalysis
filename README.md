@@ -43,4 +43,21 @@ Monitoring inventory trends for better stock management
 
 Evaluating employee contributions and productivity
 
+<img width="975" height="545" alt="image" src="https://github.com/user-attachments/assets/1c51de47-c492-4ada-a3cc-0959fac65f43" />
+
+<img width="1016" height="591" alt="image" src="https://github.com/user-attachments/assets/e6040c04-d3e2-40f2-a82a-1924295e5d54" />
+
+<img width="975" height="463" alt="image" src="https://github.com/user-attachments/assets/8e7b7893-4e99-489e-9c1a-dec56ed5ec73" />
+
+<img width="975" height="464" alt="image" src="https://github.com/user-attachments/assets/7fd90422-d0fc-4533-bcac-746b0f2155c4" />
+
+<img width="975" height="465" alt="image" src="https://github.com/user-attachments/assets/bed8f75f-288d-4695-9517-0161dd45627b" />
+
+
+
+
+
+
+
+
 Driving strategic growth with evidence-based recommendations
